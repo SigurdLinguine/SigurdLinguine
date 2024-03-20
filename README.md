@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sigurdnord@viken.no**
 
-- ⚡ Fun fact: **I play several instruments, and have beein in a band**
+- ⚡ Fun fact: **I play several instruments**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
