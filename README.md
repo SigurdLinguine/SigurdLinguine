@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **a Cafeteria Website**
 
-- 🌱 I’m currently learning **at Røyken VGS**
+- 🌱 I’m currently in school at **Røyken VGS**
 
 - 📫 How to reach me **sigurdnord@viken.no**
 
